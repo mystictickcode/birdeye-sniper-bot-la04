@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with smart birdeye sniper bot | multi-chain-support + multi-wallet-support. Featuring multi-chain-support and multi-wallet-support, it's the
 
 
 
